@@ -1,9 +1,8 @@
-### Hi there 👋
+### Hola, soy Hillary pero todos me dicen Hill ^^/
 
-<!--
-**HillaryGil97/HillaryGil97** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
--->
-As Kanye West said:
+<img src="https://media.giphy.com/media/U17E0WQBnTrDtuGNrn/giphy.gif" width="auto" height="480" frameBorder="0" class="giphy-embed" allowFullScreen>
 
-> We're living the future so
-> the present is our past.
+BTS dijo una vez:
+
+> 꿈이 뭐 거창한 거라고. 그냥 아무나 되라고
+> We deserve a life. 뭐가 크건 작건 그냥 너는 너잖어
