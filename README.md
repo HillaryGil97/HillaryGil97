@@ -1,6 +1,6 @@
 ### Hola, soy Hillary pero todos me dicen Hill ^^/
 
-<img src="https://media.giphy.com/media/U17E0WQBnTrDtuGNrn/giphy.gif" width="auto" height="480" frameBorder="0" class="giphy-embed" allowFullScreen>
+<img src="https://media.giphy.com/media/U17E0WQBnTrDtuGNrn/giphy.gif" width="100%" height="700" frameBorder="0" class="giphy-embed" allowFullScreen>
 
 BTS dijo una vez:
 
